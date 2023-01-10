@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi bro~ 👋
 
 - 🐳 I’m the owner of my lost account [@Whaleflot](https://github.com/Whaleflot) and [@whaleflot2](https://github.com/whaleflot2)
 - 🔭 I’m currently vitalizing websites with [React.js](https://github.com/facebook/react) for front-end and [Golang](https://github.com/golang) for backend
