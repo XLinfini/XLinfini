@@ -7,4 +7,3 @@
   - Many slangs and academic Latin words remain unfamiliar to me
   - I may wrongly reckon your meaning when looking up obscure words
 - 📫 How to reach me: whaleflot@protonmail.com (preferred and more frequently checked) or whaleflot@gmail.com
-- 😓 本人恶俗条目施工中，拭目以待~
